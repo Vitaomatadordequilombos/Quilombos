@@ -1,1 +1,1 @@
-![](https://tenor.com/pt-BR/view/pedroxrhz-walking-satan-gif-21405314)
+![](https://giphy.com/gifs/adult-swim-josh-freydkis-mr-pickles-3oEjHJxLCoY8qFGUJW)
