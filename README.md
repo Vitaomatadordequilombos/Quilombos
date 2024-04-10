@@ -1,1 +1,1 @@
-![](https://giphy.com/gifs/adult-swim-josh-freydkis-mr-pickles-3oEjHJxLCoY8qFGUJW)
+![](https://tenor.com/pt-BR/view/sad-gif-7523306793289960933)
